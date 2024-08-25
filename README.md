@@ -1,4 +1,4 @@
-## NAME : Pradeep RaJ
+## NAME : Pradeepraj P
 ## REG No : 212222240073
 ## EX NO - 1
 ## Date : 
